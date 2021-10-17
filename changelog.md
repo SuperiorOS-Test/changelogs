@@ -1,4 +1,6 @@
 
+![1633706057139](https://user-images.githubusercontent.com/29405483/136581672-7690727e-edb5-424a-8660-938ebb56e55c.png)
+
 
 October Update: Pack your bags because we are going on a smooth trip!
 ==================================================
@@ -39,4 +41,8 @@ Dropped Devices:
 - X00T
 
 We know as soon as you will get the update you will come back crying for more. This cycle should keep continuining so we would see you again in November now.if you managed to survive. And if you like how hard we work to bring you awesome and absolutely free software EVERY MONTH, you can go ahead and donate us some coffee at **[Paypal](https://www.paypal.me/Sipun) | [UPI](https://telegra.ph/UPI-Id-09-18)**
+
+
+
+
 
